@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @gituser11111111
 - 👀 I’m interested in ... Python, SQL, Sports, Gaming, Fitness, Finance (Stocks, Crypto), Data Analysis and much more! 
-- 🌱 I’m currently learning ... Python, SQL, EMR
+- 🌱 I’m currently learning ... Python, SQL, EMR software
 - 💞️ I’m looking to collaborate on ... Financial Analysis projects using Python and SQL. 
 - 📫 How to reach me ...
 
