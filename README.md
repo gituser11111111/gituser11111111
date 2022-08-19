@@ -3,7 +3,7 @@
 ### - 🌱 I’m currently learning ... Python, SQL, EMR software programs, and more
 ### - 💞️ I’m looking to collaborate on ... Financial Analysis projects using Python and SQL. I also am interested in collaborating on projects that utilize visualization software like Tableau and Microsoft Power BI.
 
-### Other ways to check out my stuff: ----> [My Tableau](https://public.tableau.com/app/profile/wade.bouley), [Google Drive Portfolio](https://drive.google.com/drive/folders/1x906_XXpvn9X-ylMtsYszZ09GYpERhpm?usp=sharing)
+### Other ways to check out my stuff: ----> [My Tableau Public](https://public.tableau.com/app/profile/wade.bouley)
 
 
 <!---
