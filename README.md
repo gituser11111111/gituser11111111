@@ -4,6 +4,7 @@
 ### - 💞️ I’m looking to collaborate on ... Financial Analysis projects using Python and SQL. 💸:moneybag: :dollar: 📈  I am also interested in collaborating on projects that utilize visualization software like Tableau and Microsoft Power BI.
 
 ### Other ways to check out my stuff: ----> [My Tableau Public](https://public.tableau.com/app/profile/wade.bouley) 🔥
+### Connect with me!! ----> [LinkedIn](https://www.linkedin.com/in/wade-bouley-6010a2107/) 🔥
 
 # :100:
 
