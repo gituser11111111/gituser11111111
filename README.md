@@ -9,7 +9,7 @@
 
 ### Thanks for visiting! You rock! 💜 :100:
 
-# 🐼 :heavy_dollar_sign: :heavy_dollar_sign: :heavy_dollar_sign:
+# :heavy_dollar_sign: :heavy_dollar_sign: :heavy_dollar_sign: 🐼 :heavy_dollar_sign: :heavy_dollar_sign: :heavy_dollar_sign:
 
 
 <!---
