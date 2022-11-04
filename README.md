@@ -8,8 +8,8 @@
 ### Feel like doing some shopping for whacky stuff? Check out my site! ----> [randomshizzz.com](https://randomshizzz.com/)
 
 #### Thanks for visiting! You rock! 💜 :100:
-# :heavy_dollar_sign: :heavy_dollar_sign: :heavy_dollar_sign: 
-🐼
+#### :heavy_dollar_sign: :heavy_dollar_sign: :heavy_dollar_sign: 
+# 🐼
 
 
 <!---
