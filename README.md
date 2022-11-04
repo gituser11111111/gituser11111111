@@ -1,4 +1,4 @@
-# - 👋 Hi, I’m @gituser11111111 or trashpanda 🐼 :heavy_dollar_sign: :heavy_dollar_sign: :heavy_dollar_sign: 
+# - 👋 Hi, I’m @gituser11111111 or trashpanda 🐼 
 ### - 👀 I’m interested in ... Python, SQL, Sports, Gaming, Fitness, Finance (Stocks, Crypto), Data Analysis and more! 
 ### - 🌱 I’m currently learning ... Python, SQL, EMR software programs, and others
 ### - 💞️ I’m looking to collaborate on ... Financial Analysis projects using Python and SQL. 💸:moneybag: :dollar: 📈  I am also interested in collaborating on projects that utilize visualization software like Tableau and Microsoft Power BI.
@@ -7,9 +7,9 @@
 ### Connect with me!! ----> [LinkedIn](https://www.linkedin.com/in/wade-bouley-6010a2107/) 🔥
 ### Feel like doing some shopping for whacky stuff? Check out my site! ----> [randomshizzz.com](https://randomshizzz.com/)
 
-#### Thanks for visiting! You rock! 💜
-# :100:
-# 🐼
+#### Thanks for visiting! You rock! 💜 :100:
+# :heavy_dollar_sign: :heavy_dollar_sign: :heavy_dollar_sign: 
+🐼
 
 
 <!---
