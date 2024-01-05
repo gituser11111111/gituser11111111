@@ -5,7 +5,6 @@
 
 ### Other ways to check out my work: ----> [My Tableau Public](https://public.tableau.com/app/profile/wade.bouley), [Coursera](https://www.coursera.org/user/5458de507f6f980c303547ea827e8383), [Codecademy](https://www.codecademy.com/profiles/trashpanda47), [Udemy](https://www.udemy.com/user/wade-bouley/) 🔥
 ### Connect with me!! ----> [LinkedIn](https://www.linkedin.com/in/wade-bouley-6010a2107/) 🔥 🔗
-### Feel like doing some shopping for cool stuff? Check out my site! ----> [Ca$h.com](https://cashwrb.com/) 🛒
 
 ### Thanks for visiting! You rock! 💜 :100:
 
